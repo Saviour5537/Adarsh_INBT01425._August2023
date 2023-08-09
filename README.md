@@ -1,1 +1,1 @@
-# Adarsh_INBT01425._August2023
+I understand that the clone-based project created by me is intended solely for educational purposes.
